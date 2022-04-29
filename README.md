@@ -8,8 +8,8 @@ Postdoctorado TecNM/CENIDET
 Actualmente laborando como profesora-investigadora de tiempo completo en la academia de Sistemas y Computación
 del TecNM/Instituto Tecnológico de San Juan del Río, Querétaro; y en la
 Maestría en Ingeniería administrativa (MIA) dentro del marco del convenio de colaboración ITSJR/ITCuautla
-Funjo como Coordinadora de posgrado MIA en el campus San Juan del Río
-Soy Perfil Deseable y perteneciente al Cuerpo Académico del ITSJR de línea de Investigación “Innovación en la Industria 4.0”.
+Funjo como Coordinadora de posgrado MIA en el campus San Juan del Río.
+Soy Perfil Deseable y pertenezco a un Cuerpo Académico en consolidación del ITSJR de línea de Investigación “Innovación en la Industria 4.0”.
 
 - 📫 How to reach me armida.gl@sjuanrio.tecnm.mx
 
